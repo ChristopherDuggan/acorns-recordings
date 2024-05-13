@@ -1,1 +1,5 @@
-# acorns-recordings
+[5/10](https://generalassembly.zoom.us/rec/share/9LHnBUvVB5ooxmNsKvkytyssVN7WpoDiegy5J6-W618usz4PGgKVBxmpRxFcGyzu.JGmaRm16vImjYWOZ)  
+[5/9](https://generalassembly.zoom.us/rec/share/_GpLsgwpRW8mrMoqN1fLX7Ws_2O-0al7K6SpFM7IL_Ob-Icacjl6Tt-SrgrSJ6W6.2VS4xE3cS3PVrm4J)  
+[5/8](https://generalassembly.zoom.us/rec/share/OTDZKUnHYWeeBUjXA0X77SrbhnX5KBN0ZIwkg_NFba9qtmq2UlZ870TnLY6fxGJM.poXPUiAU1yO0tjez)    
+[5/7](https://generalassembly.zoom.us/rec/share/oDXPi_kfsmNF33WqjRxCcz-HN1UZbjAzzbVz7QDwMTBum2ZLkxHG8KaMhb175d_m.8HoGmIGJ1oFITYRK )  
+[5/6](https://generalassembly.zoom.us/rec/share/yk0mRQb9bv8d06S00N07D9tSdmfjZtGgUF7xa4fED_LM6dglWvLLA2rI8rIHBnUz.cgEjsmKb6_GyNnhY)  
