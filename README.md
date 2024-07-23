@@ -1,3 +1,23 @@
+[7/22](https://generalassembly.zoom.us/rec/share/iQMnsbkxJi_lyTynzTVYHfhDUMv_d7LUj_AfK93gMdPAGZyjlcLjZBop5MFzP7U.wjWcN19vEyhuX25T)
+
+[7/19](https://generalassembly.zoom.us/rec/share/kQFlg_BPXh5NF_8pVm1ALm9daSKulXivfNuHCeLHf_QJLy23OgbnkQOv21Yvp8ph.fZcj7YyVy_B-fGtX)
+
+[7/18](https://generalassembly.zoom.us/rec/share/glpJETg9250Xqyow2zokJK3aJJXAo_y_RjoU_vBV4e4NBKVg2HMajwNFfDN4dYiH.FEpW1eaoCOz-Xw05)
+
+[7/17](https://generalassembly.zoom.us/rec/share/rhjgmV2fMHNL1zYlxP6n2DZE1fOQG1uRo4S-byNJhtsFhmtjMTii0JhlVucDXs9D.UT1wuVcN6uu79HET)
+
+[7/16](https://generalassembly.zoom.us/rec/share/Gsuz_MSdbf7aJ2qkRuxaxwD-BbGqC_KIBGapcBvzlrZlVC1TxooPVg6bWuhG8euF.XZTO-aJ-zMz5zY4j)
+
+[7/15](https://generalassembly.zoom.us/rec/share/Gsuz_MSdbf7aJ2qkRuxaxwD-BbGqC_KIBGapcBvzlrZlVC1TxooPVg6bWuhG8euF.XZTO-aJ-zMz5zY4j)
+
+[6/27](https://generalassembly.zoom.us/rec/share/Af4p2tTmJ0uZRvqVoc_i3odxRMExPzKBoNsamnLP0T_vQu78XfqG_LA_Mtf5NNMx.LVArRbItI_CJz5J_)
+
+[6/26](https://generalassembly.zoom.us/rec/share/AykoYgI0FFTuzeDTwRgY3KUiUDCia8N12wleIC16rAxgSWxq_oAPo9lQD5vgryi7.VzbUP-PxRyc72Oeh)
+
+[6/25](https://generalassembly.zoom.us/rec/share/j5dJI5oq4QUGUyyUcUPbh8epsALAqAH224VDb7Y6nO0HiZLtZ94MPGvBIhoXjZQT.F0FgePQ1yacUkMVX)
+
+[6/24](https://generalassembly.zoom.us/rec/share/D_a9rHFjrJaKc3P_lAhyb8TAeVTM_15ZOumoykLD4_-Z9k61U4OYVfmnx1oCN6Su.rJ74iNNZc_8EUDmD)
+
 [6/21](https://generalassembly.zoom.us/rec/share/rWPpxkle0wglIVoRuA-TOG8l6WWGhxEOgLoENobHkYs8FbQQZXKzPIhg-Kln5Tr3.3FfADZdanNYRQSuA) 
 
 [6/20](https://generalassembly.zoom.us/rec/share/pOTuzD6WtDc1j9-j_rCN7uscC_I-pUvgfr4nnBw7RrhOgcBWIja-_ITbp8BFIO58.BoW1s1UkP8clrvSq) 
